@@ -1,1 +1,1 @@
-Take UR Certicat from Here! ^-^ But U Have to Pass The quiz First.
+Take UR Certificat from Here! ^-^ But U Have to Pass The quiz First.
